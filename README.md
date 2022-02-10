@@ -1,2 +1,2 @@
-# Kristinacourses.github.io
+# Кристина Юринова
 Первый сайт
